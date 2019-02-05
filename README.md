@@ -1,1 +1,0 @@
-# knoguchi.github.io
